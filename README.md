@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @marinaesia
-- 👀 I’m interested in screenwriting for Cinema and TV.
+- 👀 I’m interested in screenwriting for Cinema, Theater and TV.
 - 🌱 I’m currently learning dramaturgy.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on original film projects from producers bases in Brazil, Portugal and Spain.
 - 📫 How to reach me: marinahjp@gmail.com
 
 <!---
